@@ -4,11 +4,10 @@
 
 ## 相关站点
 
-- [主页](https://www.noisework.cn)
-- [导航](https://www.noisedh.cn)
-- [宝藏阁](https://noisevip.cn)
-
-
+- [主页](https://www.277711.xyz/e/home)
+- [主页](https://www.oneself.eu.org)
+- [导航](https://www.soledad.cloudns.asia)
+- [博客](https://www.277788.xyz)
 `更新时间：2025-02-01 20:29:27 +0800`
 
 ## 抖音热榜
